@@ -1,5 +1,5 @@
 # discord31
-discord 31 s ve j
+S ve J Hikayesi Ağlamamak Elde Değil
 
 S ve J'nin kadim dostluğu çok eskiye dayanır. 
 Bir gün uzak dünyada eski zamanlarda birbirine rakip iki köy varmış. Bir köyde S ve ailesi, diğer köyde J ve dostları varmış.
